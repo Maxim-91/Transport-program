@@ -146,3 +146,19 @@ The "Thank you for buying a ticket!" window:
 
 ![image](https://github.com/user-attachments/assets/703312ff-f6eb-4c3c-a5ca-bd721b6e7358)
 
+
+HELP VIEW
+
+![image](https://github.com/user-attachments/assets/e3d33b98-6db6-4c69-bbfa-3ed30c26f65c)
+![image](https://github.com/user-attachments/assets/a25959fe-5851-498e-bdaa-f272e90889d4)
+![image](https://github.com/user-attachments/assets/43142395-034e-42e8-add8-84ff6c1c5e08)
+![image](https://github.com/user-attachments/assets/4f4b7a36-0275-418f-a743-0a9e67f14668)
+![image](https://github.com/user-attachments/assets/b5ae4fc4-e377-4b0f-8db5-239717017a96)
+![image](https://github.com/user-attachments/assets/689c9ce0-4cae-482f-9ef5-590c82b944bf)
+![image](https://github.com/user-attachments/assets/17178685-c099-4a11-ba4f-08687c73902c)
+![image](https://github.com/user-attachments/assets/2382e58e-39a9-4afb-b62a-83ca83846dda)
+![image](https://github.com/user-attachments/assets/d31c5eb3-9fbf-4879-abcb-b55c0d5bf9ef)
+![image](https://github.com/user-attachments/assets/437cd479-4c0e-475f-91a3-8bdce76c9f90)
+![image](https://github.com/user-attachments/assets/14bcdb5b-ae45-4040-85ed-cfbf646c0fa8)
+![image](https://github.com/user-attachments/assets/692d0479-e8fc-48cb-85e5-375ea89ef97c)
+![image](https://github.com/user-attachments/assets/799f048f-7d92-4d58-912b-994936008c76)
